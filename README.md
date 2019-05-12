@@ -1,2 +1,2 @@
 # ltcbot
-Assalamu"alaikum
+DAMANG
