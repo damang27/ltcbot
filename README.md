@@ -1,2 +1,0 @@
-# ltcbot
-DAMANG
